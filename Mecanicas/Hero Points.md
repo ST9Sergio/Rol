@@ -1,0 +1,1 @@
+Tienes uno por sesión, y ganas uno por cada acción heroica que hagas en la partida, pero se pierden al final de la sesión, por lo que hay que usarlos.

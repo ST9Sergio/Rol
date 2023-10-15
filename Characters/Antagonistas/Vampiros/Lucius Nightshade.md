@@ -1,0 +1,1 @@
+Antagonista principal de la historia, padre adoptivo de [[Thorian Noctis]], aparentemente experimento para crear un nuevo vampiro.

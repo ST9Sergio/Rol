@@ -1,0 +1,1 @@
+Madre adoptiva de [[Thorian Noctis]].
